@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Heizel77
-- 👀 I’m interested on it things
+- 👀 I’m interested on IT things
 - 🌱 I’m currently learning web designing , javascript and 3ds max 
 - 💞️ I’m looking to collaborate on everything possible
 - 📫 How to reach me nikosserjani@gmail.com
